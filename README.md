@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @cotijepico
+- 🌱 PYTHON, HTML, CSS, BATCH
+- 📫 DISCORD: alfič#2932
